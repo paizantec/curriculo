@@ -1,0 +1,2 @@
+# curriculo
+currículo a terminar 
